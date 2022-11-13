@@ -1,4 +1,4 @@
 # chitaitruong.github.io
-Hello, I'm Tai, 
+Hello, I'm Chi Tai, 
 I'm from VietNam
 
